@@ -1,1 +1,2 @@
-👋 Hi, I’m @Micaela-Plata
+                                                  👋 Hi, I’m @Micaela-Plata
+                                                  ... Welcome to my space ...
